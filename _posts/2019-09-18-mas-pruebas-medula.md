@@ -5,8 +5,6 @@ published: true
 
 El segundo día empezó igual: extracción de sangre, esta vez para hematología :-[ Y ¿adivinas qué? pues que no fue por la vía. Bueno, lo intentaron, pero salía muy despacio, así que lo hicieron de la forma tradicional. Pero tradicional tradicional. Nada de tubitos: jeringuilla XXL y luego a rellenar las muestras.
 
-<!--more-->
-
 También pasaron, como el día anterior, a tomarme la tensión y medirme la temperatura. Que, por cierto, te dan unos sustos te aúpa. Llevan un cacharro que parece salido de [Espacio 1999](https://www.imdb.com/title/tt0072564) y se acercan sigilosas, que no sabes si van a por tí o a por el vecino, y cuando no te lo esperas, ¡zasca! te dispasan en la sien con el táser :-)
 
 Vino prontito el residente a decirme que no había aún ningún resultado, que ya hablarían conmigo cuando supieran algo más. Pero que era normal porque algunas pruebsa podían tardar entre una semana y diez días.
