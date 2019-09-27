@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Me dan el alta"
+title: "Me voy a casa"
 published: true
 ---
 
