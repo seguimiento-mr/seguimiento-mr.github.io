@@ -25,6 +25,7 @@ Y al poco vino el hematólogo con un montón de bolsas y me explicó que aprovec
 Así que, ala, sin darme tiempo a mentalizarme ni nada, me explica que me lo van a sacar de la cresta ilíaca, que no pasa nada, que la gente se lo hace en la consulta y se va andando a su casa, y que le firme en la línea de puntos.
 
 Me explica cómo va a ser: anestesia local en todas las capas (músculo, grasa, hueso) ¿hueso? sí, hueso, pero solo la parte externa, luego dentro no hay nervios. Y la extracción es unas por aspiración, que es una sensación rara, como la de un quemazo o algo así, y luego una biopsia también. Y que ya que estaos, que me saca otra para dejar en un banco de médula, que es bueno para la ciencia (claro, ahí me ganó)
+
 -- entonces ¿cuántas muestras?
 
 -- cuatro
