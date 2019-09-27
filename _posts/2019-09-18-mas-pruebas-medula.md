@@ -31,6 +31,8 @@ Me explica cómo va a ser: anestesia local en todas las capas (músculo, grasa, 
 
 -- cuatro
 
+-- (>﹏<)
+
 Debe ser un número mágico o que van en un kit. También me advierte de que le vaya avisando, porque él va a ciegas. Y que si hace falta me pone un poco más de anestesia. Yo le iba a decir que lo de a ciegas no me inspiraba confianza y que conocia a un doctor muy majete que seguro que si eso le dejaba el aparato de las eco, que yo se lo presentaba. Pero no me dió pie. Así que sin comerlo ni beberlo tuve mi segundo momento traumático de la semana.
 
 Realmente es más la impresión que otra cosa. La anestesia ni la notas, ahí yo tengo menos carne que el tobillo de un canario y lo del hueso es más sugestión y que notas a alguién ahí, haciendo fuerza... Lo malo es la aspiración: también duele, más o menos como la otra biopsia. Y para la biopsia, no sé si es así siempre o realmente iba a ciegas, pero me hizo daño un par de veces y dijo _"vale, pues me quedo aquí porue he debido llegar al otro lado"_ O_o La biopsia apenas se notó. Lo que si es verdad es que una vez que ha terminado te puedes mover sin problema. Tienes una ligera molestia en la zona, pero nada más.
