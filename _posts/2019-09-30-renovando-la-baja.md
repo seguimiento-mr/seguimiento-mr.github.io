@@ -1,7 +1,8 @@
-—-
-title: Renovando la baja
+---
+layout: post
+title: "Renovando la baja"
 published: true
-—-
+---
 
 Ya han pasado 15 días y me toca pedir que me prorroguen la baja. A partir de ahora puedo pedir que sea cada 30 días. Me parece ridículo y una pérdida de tiempo y dinero (de nuestros impuestos) que pasa casos así no se pueda hacer de golpe por más tiempo. 
 
