@@ -8,7 +8,7 @@ Pues eso, que ya sé lo que tengo y me han dado el tratamiento que tengo que seg
 
 Se llama (espera, que lo miro otra vez) **síndrome linfoproliferativo crónico B** Lo que viene siendo que mi cuerpo genera más linfocitos de ese tipo de los que toca. Según me ha explicado Miriam (permitidme que la tutee, pero es que ha visto partes de mi que nadie más conoce) eso tiene dos salidas: a la sangre o a los ganglios. A mi me ha tocado lo segundo. Y se han ido acumulando en la masa que tengo en el abdomen y que salíó en el TAC.
 
-Se trata de una enfermedad crónoica: mi cuerpo genera así los anticuerpos y es de evolución muuuuy lenta. De hecho, cuando se detecta no siempre se trata a no ser que cumpla algunos requisitos. Uno de ellos es que haya una masa de Bulki (se llama así) de más de 7 cm, que es mi caso. Lo del leeeento es que tengo para dos o tres sexenios para que vaya progresando antes de que se planteen algo más.
+Se trata de una enfermedad crónica: mi cuerpo genera así los anticuerpos y es de evolución muuuuuuy lenta. De hecho, cuando se detecta no siempre se trata a no ser que cumpla algunos requisitos. Uno de ellos es que haya una masa de Burkkit (se llama así) de más de 7 cm, que es mi caso. Lo del leeeento es que tengo para dos o tres sexenios para que vaya progresando antes de que se planteen algo más.
 
 Han hecho un análisis genético para determinar exactamente cuál es, porque hay tratamientos específicos para cada uno de ellos. El que yo tengo no es el más agresivo, es el siguiente. Ya ves, soy segundón hasta para esto ;-)
 
