@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "No, no he corrido la maratón"
-published: false
+published: true
 ---
 
 La semana pasada fue la maratón de Valencia. No la corrí, por si alguien se lo pregunta, ni de momento pretendo hacerlo. La razón más importante: problemas logísticos. Estaba en Zaragoza y como no soy uno y trino, como en Amanece que no es poco, pues era imposible y además no se podía.
