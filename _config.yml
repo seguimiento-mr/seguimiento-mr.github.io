@@ -1,9 +1,9 @@
 title: Seguimiento MR
-description: "Para llevar el seguimietno de mi progreso"
+description: "Para llevar el seguimiento de mi progreso"
 author:
   name: "Seguimiento MR"
   #email: ""
-  url: "https://seguiiento-mr.github.io"
+  url: "https://seguimiento-mr.github.io"
 
 baseurl: /
 
@@ -21,7 +21,7 @@ defaults:
     values:
       layout: "post"
 
-future: false
+future: true
 plugins:
   - jekyll-seo-tag
   - jekyll-paginate
