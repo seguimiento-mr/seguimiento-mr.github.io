@@ -10,4 +10,4 @@ He salido con la bici y ayer empecé a correr en el río. Con calma, para ver c�
 
 He tenido ya una revisión para ver si la B12 está funcionando y tengo los niveles normales. Así que me toca seguir con ese tratamiento hasta nueva orden, que me temo que va a tardar mucho en llegar. En principio, no tengo la gastroscopia hasta noviembre.
 
-Si me hacen el TAC este mes (qeu va a ser que no) tendré visita a finales de este mes. Si no, tengo cita para el 18 de septiembre. Ya os contaré. Ahora, a disfrutar de las vacaciones.
+Si me hacen el TAC este mes (que va a ser que no) tendré visita a finales de este mes. Si no, tengo cita para el 18 de septiembre. Ya os contaré. Ahora, a disfrutar de las vacaciones.
