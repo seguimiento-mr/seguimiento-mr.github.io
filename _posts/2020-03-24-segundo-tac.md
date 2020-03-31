@@ -24,4 +24,4 @@ Llegué al clínico sin incidentes. Me crucé con la policía pero no me pregunt
 
 -- no te muevas...bzzzzzzzzz...ale, ya ta
 
-Al salir estaban fuera el resto. No eran muy astutos: las sillas tenían cintas para que nadie se sentara (una sí, dos no). Pero como no cabían todos... ¡las habían quitado y se habíamn sentado! O_o Así que hice mutis y me marché. Ahora a esperar el resultado. Tengo cita la semana que viene.
+Al salir estaban fuera el resto. No eran muy astutos: las sillas tenían cintas para que nadie se sentara (una sí, dos no). Pero como no cabían todos... ¡las habían quitado y se habían sentado! O_o Así que hice mutis y me marché. Ahora a esperar el resultado. Tengo cita la semana que viene.
