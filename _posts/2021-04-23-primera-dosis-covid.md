@@ -8,4 +8,4 @@ Ayer me llamaron para darme cita y esta tarde me han puesto la primera dosis de 
 
 Me ha tocado la de Moderna. Ahora no sé si esa es la que me mejoraba la cobertura o si me crecía un tercer brazo, ya os voy diciendo. Bueno, lo del brazo creo que se notara, así que si es eso no hace falta.
 
-De momento sin efectos: sin fiebre, mareos ni nada. Me molesta un poco el brazo, pero también me pasa con la de la gripe. Y tengo tres rallitas de la wifi, así que al menos interferencias tampoco causa.
+De momento sin efectos: sin fiebre, mareos ni nada. Me molesta un poco el brazo, pero también me pasa con la de la gripe. Y tengo tres rayitas de la wifi, así que al menos interferencias tampoco causa.
