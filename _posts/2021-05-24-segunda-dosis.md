@@ -8,11 +8,9 @@ Hoy me ha tocado la segunda dosis de la vacuna. Me llegó un SMS para que fuera 
 
 La entrada ha ido como la escena de La vida de Brian
 
-- ¿Crucifixión?
-
-- Sí
-
-- Bien, salga por esa puerta, alinéese a la izquierda, una cruz por persona. El siguiente...
+-- ¿Crucifixión?
+-- Sí
+-- Bien, salga por esa puerta, alinéese a la izquierda, una cruz por persona. El siguiente...
 
 Yo le iba a decir que mientras estaba en la cola ya había oído las instrucciones doce veces, pero me ha sabido mal y le he dejado que lo repitiera. Esta vez los 15 minutos de espera han sido leyendo Cuarentena, de Greg Egan. Muy propio. Bueno, si sabes de que va el libro realmente no.
 
