@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Segunda dosis de la vacuna del covid-19"
-published: false
+published: true
 ---
 
 Hoy me ha tocado la segunda dosis de la vacuna. Me llegó un SMS para que fuera al Hospital de la Malvarrosa... sin tranvía ni nada. Esta vez mezclado con todo el mundo, no solo con los que estamos haciendo de conejillo de indias, así que la cola ha sido un poco más larga y he estado casi una hora entre pitos y flautas.
