@@ -10,6 +10,6 @@ La cosa va muy bien. Me hicieron un TAC porque ya llevaba un año de tratamiento
 
 La masa, que antes era com si tuviera dos higados, casi ha desaparecido. Lo malo: que ahora me cabe más comida y con esto de que no me levanto de la silla tendré que plantearme usar una mascarilla como la de Anibal Lecter.
 
-Me han quitado casi todas las pastillas y solo me queda el tratamiento y otra que creo que es para el ácido úrico´, pero no me hagas mucho caso.
+Me han quitado casi todas las pastillas y solo me queda el tratamiento y otra que creo que es para el ácido úrico, pero no me hagas mucho caso.
 
 La próxima visita en tres meses (bueno, desde hoy, en menos). Seguiremos informando.

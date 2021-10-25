@@ -4,7 +4,7 @@ title: "Llegó Paco con las rebajas"
 published: true
 ---
 
-En diciembre hizo tres meses de mi baja y desde el dia 17 la universidad dejó de pagarme el sueldo completo. Ahora se divide en dos partes: la universidad me paga el salario base y MUFACE (la mutua que tenemos los funcionarios) asume la parte que corresponde a los complementos.
+En diciembre hizo tres meses de mi baja y desde el día 17 la universidad dejó de pagarme el sueldo completo. Ahora se divide en dos partes: la universidad me paga el salario base y MUFACE (la mutua que tenemos los funcionarios) asume la parte que corresponde a los complementos.
 
 Hice todo el papeleo en diciembre, pero ya me advirtieron de que MUFACE se lo tomaría con calma hasta empezar a pagarme, dos o tres meses. Y como más de la mitad de mi sueldo son complementos, pues tocaba apretarse el cinturón.
 

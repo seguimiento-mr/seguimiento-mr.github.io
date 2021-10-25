@@ -20,6 +20,6 @@ Por cierto, con lo del contacto, me he dado cuenta de que no tenemos ninguna con
 
 Lo que sí reconozco que me ha obsesionado un poco es la manipulación de los alimentos. Limpio la cocina 50 veces, tiro la comida a la mínima sospecha de que pueda estar mal, no la guardo más de tres días... Le tengo más miedo a la salmonela que al coronavirus.
 
-Y no os vengáis arriba haciendo cosas. Que van a ser solo dos semanas... bueno, no, yo creo que seguro un mes y puede que algo más. Pero no da tiempo a aprender francés, a aprender a tocar el piano, a ordenar la habitación, a leer esa pila de libros pendietes, a hacer yoga... Sosiega y abúrrete un poco, que no da. Te lo dice un hiperactivo. 
+Y no os vengáis arriba haciendo cosas. Que van a ser solo dos semanas... bueno, no, yo creo que seguro un mes y puede que algo más. Pero no da tiempo a aprender francés, a aprender a tocar el piano, a ordenar la habitación, a leer esa pila de libros pendientes, a hacer yoga... Sosiega y abúrrete un poco, que no da. Te lo dice un hiperactivo. 
 
 Uf, que rollo te acabo de soltar. Se ve que me aburro. Claro, que si has llegado hasta aquí, seguramente tú también ;-)

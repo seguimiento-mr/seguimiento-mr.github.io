@@ -4,7 +4,7 @@ title: "Por aquí ando"
 published: true
 ---
 
-Con esto de que hasta el día 10 no tengo revisión y que mi vida es aburrida no, lo siguiente, pues tampoco tengo mucho que contar. Tengpo un poco más de vida social: hace un par de semanas estuve en un congreso, he quedado dos o tres veces a comer con otros humanos y también en un partido de baloncesto en la Alquería del basket (por cierto, la que tiene montada el Roig O_o )
+Con esto de que hasta el día 10 no tengo revisión y que mi vida es aburrida no, lo siguiente, pues tampoco tengo mucho que contar. Tengo un poco más de vida social: hace un par de semanas estuve en un congreso, he quedado dos o tres veces a comer con otros humanos y también en un partido de baloncesto en la Alquería del basket (por cierto, la que tiene montada el Roig O_o )
 
 Creo que, después de dos meses, sí que tengo algún efecto secundario, pero muy leve. ¿Os acordáis que que cuando me volví radiactivo me tocó un superpoder muy flojo? Pues lo de los efectos secundarios es igual. Miras la lista y hay cosas bien chulas. Pero a mi creo que me han tocado los más mierder.
 

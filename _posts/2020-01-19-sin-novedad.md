@@ -4,7 +4,7 @@ title: "Sin novedad en el frente"
 published: true
 ---
 
-Esta semana no me ha pasado nada interesnte, ni he tenido revisión ni nada, así que esta nota es bastante sosica.
+Esta semana no me ha pasado nada interesante, ni he tenido revisión ni nada, así que esta nota es bastante sosica.
 
 Ya dije que había dejado de tomar las pastillas para la artrosis. Desde entonces sigo con molestias sobre todo en las manos. No sé muy bien si es por dejar de tomar las pastillas o por la medicación del linfoma, porque ese es uno de los efectos secundarios.
 
