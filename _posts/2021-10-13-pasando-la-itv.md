@@ -12,4 +12,4 @@ Justo después me tocaba la revisión. Todo igual, los riñones al jerez, pero s
 
 Sobre el estudio, ya tenía los resultados. Anticuerpos sigo sin tener, pero al menos sí que he generato un poco de memoria celular. Poca, pero algo es algo. Básicamente, viene a ser que los leucocitos T saben qué pinta tiene el covid y cuando ven alguien sospechoso le preguntan así, como poniendose las gafas ¿y tú de quién eres? y si no contestan bien se los cargan, pero que parezca un accidente. Lo malo es que la memoria de los míos es como la de Dory, así que tampoco me puedo fiar mucho de ellos.
 
-Y nada más: la próxima ITV en enero. 
+Y nada más: la próxima ITV en enero.
